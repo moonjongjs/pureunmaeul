@@ -1,3 +1,13 @@
+
+![KakaoTalk_20241227_040516032](https://github.com/user-attachments/assets/bde12aa7-1263-4753-83f4-35c91c3de213)
+문선종
+웹디자이너
+웹퍼블리셔
+프론트앤드
+백앤드
+풀스택
+
+
 ![image](https://github.com/user-attachments/assets/40d65b98-0001-486a-952a-2035746f3549)
 ![image](https://github.com/user-attachments/assets/433c59e9-82b1-4073-9e72-8948b25e0c6b)
 ![image](https://github.com/user-attachments/assets/f7fb35b4-a3d8-436c-a7d5-de5ad75e7b1e)
